@@ -16,6 +16,7 @@ Ingredients
 * 1/2 tsp sugar, any kind, to balance tomato acidity
 * salt and pepper (tiny)
 * Italian seasoning
+
   * oregano (essential)
   * basil (essential)
   * rosemary (nonessential)
