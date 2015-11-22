@@ -12,6 +12,7 @@ Ingredients
 * 1 onion, diced
 * 1-2 cloves garlic (optional)
 * 14 oz can diced tomatoes, **undrained**
+* 14 oz can tomato sauce
 * 6 oz can tomato paste
 * 1/2 tsp sugar, any kind, to balance tomato acidity
 * salt and pepper (tiny)
