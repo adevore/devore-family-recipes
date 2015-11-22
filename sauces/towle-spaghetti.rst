@@ -36,7 +36,7 @@ Instructions
 1) Brown hamburger: medium-high heat, no oil. Drain fat with a bulb
    syringe into a container (suggestion: a tomato can) and place in
    freezer. Discard after frozen.
-2) Saute onions in the sameskillet, possibly just pushing the meat to
+2) Saute onions in the same skillet, possibly just pushing the meat to
    the side. Add garlic near the end.
 3) Put all ingredients in a pot.
 4) Simmer for 20-60 minutes
